@@ -1,3 +1,3 @@
 # About me
 
-Current MGIS student.
+Current MGIS student at the University of Minnesota Twin Cities.
